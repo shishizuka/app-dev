@@ -1,4 +1,4 @@
-# My App-Dev README
+# README
 
 ## Favorite Series: *Major*
 **Genre:** Sports / Baseball / Drama  
