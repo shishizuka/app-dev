@@ -25,7 +25,7 @@
 Season 3, Episode 24 
 
 ### Fun Fact
-- I rewatched the whole series for like 8 times already.
+- I rewatched the whole series for like 8 or 10 times already.
 
 ### Rating
 ⭐ ⭐ ⭐ ⭐ ⭐ (5/5)
