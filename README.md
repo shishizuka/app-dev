@@ -11,18 +11,21 @@
 
 &gt; "The doctor already told me to give up, but my answer is this" – Goro Honda (Season 2, Episode 2)
 
-### Top 3 Characters
+### Top 5 Characters
 | Rank | Character | VA (Japanese) |
 |------|-----------|---------------|
 | 1    | Goro Honda | Showtaro Morikubo |
 | 2    | Kaoru Shimizu | Mamiko Noto |
 | 3    | Joe Gibson | Rikiya Koyama |
+| 4    | Toshiya Satou | Fuyuka Ono |
+| 5    | Ryouko Kawase | Kumiko Endo |
+
 
 ### Favorite Episode
 Season 3, Episode 24 
 
 ### Fun Fact
-- I rewatched the whole series for like 8 times already.
+- I rewatched the whole series for like 8 or 10 times already.
 
 ### Rating
 ⭐ ⭐ ⭐ ⭐ ⭐ (5/5)
