@@ -17,6 +17,8 @@
 | 1    | Goro Honda | Showtaro Morikubo |
 | 2    | Kaoru Shimizu | Mamiko Noto |
 | 3    | Joe Gibson | Rikiya Koyama |
+| 4    | Toshiya Satou | Fuyuka Ono |
+
 
 ### Favorite Episode
 Season 3, Episode 24 
